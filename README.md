@@ -23,5 +23,5 @@ Lo studio conclude che un approccio integrato basato sull'economia fondamentale 
 
 ---
 
-Spero che queste informazioni siano utili per la tua ricerca. Se hai bisogno di ulteriori dettagli o modifiche, fammelo sapere!
+
 
